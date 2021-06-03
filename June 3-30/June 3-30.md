@@ -13,4 +13,4 @@
 - ✍️5 sums
 - 💡Prepinsta(quant-formulas)
 >> Video
-- 💡Aptitude tricks[https://www.youtube.com/watch?v=Xe3cDAP-GIg]
+- 💡Aptitude tricks[https://www.youtube.com/watch?v=Xe3cDAP-GIg]..
