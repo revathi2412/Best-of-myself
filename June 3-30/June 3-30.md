@@ -35,3 +35,29 @@
 - 🌩️8 INVENTIONS AND TECHNOLOGIES THAT WILL CHANGE OUR WORLD[https://www.youtube.com/watch?v=9Hxt3GttF38]
 >>Physical activity
 - 🚶‍♀️walking
+
+**JUNE 5 & 6**
+- ✅Typing
+- ✅Brilliant.org
+- ✅Lumosity daily challenge
+- ✅2048
+>>Physical activity
+- 🚶‍♀️walking
+>>Video
+- Emerging technologies
+
+**JUNE 7**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅2048
+- ✅Brilliant.org
+>> Coding
+- ✨Skillrack(2 pgms)
+- ✨Mysql [Solved 5 problems / https://www.w3schools.com/mysql]
+- ✨Hackerrank(1 prblm)
+>> Aptitude
+- 💡Prepinsta(quant-formulas)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🔥Emerging Technologies 2021(https://youtu.be/9Xh8Mz2X7RE)
