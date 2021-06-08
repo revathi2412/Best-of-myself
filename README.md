@@ -61,3 +61,22 @@
 - 🚶‍♀️walking
 >> Video
 - 🔥Emerging Technologies 2021(https://youtu.be/9Xh8Mz2X7RE)
+
+
+
+**JUNE 8**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Puzzles
+- ✅Brilliant.org
+>> Coding
+- ✨Mysql [Solved 5 problems / https://www.w3schools.com/mysql]
+- 📌Hackerrank(1 prblm)
+- 📌Skillrack(2 pgms)
+>> Aptitude
+- ✍️Prepinsta(logical resoning)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- Gravitas Plus: The secret to happiness[https://www.youtube.com/watch?v=wkZ7Dh2DfbI]💥
+- ✨Three Laughing Monks Story
