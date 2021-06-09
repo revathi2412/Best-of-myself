@@ -79,3 +79,23 @@
 >> Video
 - Gravitas Plus: The secret to happiness[https://www.youtube.com/watch?v=wkZ7Dh2DfbI]💥
 - ✨Three Laughing Monks Story
+
+
+**JUNE 9**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Puzzles
+- ✅Brilliant.org
+>> Coding
+- ✨Mysql [Solved 5 problems / https://www.w3schools.com/mysql]
+- 📌Hackerrank(1 prblm)
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(logical resoning)
+>> Physical activity
+- 🚶‍♀️walking
+>> Reading
+- ✨Geeks Digest
+>> Video
+- Daily news[BBC]
+- https://www.aninews.in/
