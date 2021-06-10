@@ -99,3 +99,23 @@
 >> Video
 - Daily news[BBC]
 - https://www.aninews.in/
+
+
+**JUNE 10**
+- ✅Typing
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Lumosity daily challenge
+>> Coding
+- ✨Mysql [Solved 3 problems / https://www.w3schools.com/mysql]
+- 📌Hackerrank(1 prblm)
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(logical resoning)
+>> Physical activity
+- 🚶‍♀️walking
+>> Reading
+- 📌Geeks Digest
+>> Video
+- Daily news[BBC]
+- https://www.aninews.in/
