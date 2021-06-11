@@ -119,3 +119,20 @@
 >> Video
 - Daily news[BBC]
 - https://www.aninews.in/
+
+
+**JUNE 11**
+- ✅Typing
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Lumosity daily challenge
+>> Coding
+- ✨Mysql [Solved 5 problems / https://www.w3schools.com/mysql]
+- 📌Hackerrank(1 prblm)
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(logical resoning(2 sums))
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- Daily news[BBC]
