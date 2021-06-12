@@ -148,6 +148,6 @@
 >> Physical activity
 - 🚶‍♀️walking
 >> Video
-- https://www.wionews.com/[Tech it out!!smartphone spl]
+- https://www.wionews.com/ [Tech it out!!smartphone spl]
 
 
