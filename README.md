@@ -138,4 +138,16 @@
 >> Video
 - Daily news[BBC]
 
+**JUNE 12**
+- ✅Typing
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Lumosity daily challenge
+>> Coding
+- 📌Skillrack(10 pgms)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- https://www.wionews.com/[Tech it out!!smartphone spl]
+
 
