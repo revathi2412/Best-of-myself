@@ -138,7 +138,7 @@
 >> Video
 - Daily news[BBC]
 
-**JUNE 12**
+**JUNE 12 & 13**
 - ✅Typing
 - ✅Brilliant.org
 - ✅Puzzles
@@ -149,5 +149,23 @@
 - 🚶‍♀️walking
 >> Video
 - https://www.wionews.com/ [Tech it out!!smartphone spl]
+
+
+
+**JUNE 14**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- ✨Mysql [Solved 2 problems / https://www.w3schools.com/mysql]
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(logical resoning(3 sums))
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️Daily news[BBC]
+- 🌩️https://www.udemy.com/course
 
 
