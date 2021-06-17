@@ -166,4 +166,52 @@
 - 🌩️Daily news[BBC]
 - 🌩️https://www.udemy.com/course
 
+**JUNE 15**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- ✨Mysql [Solved 2 problems / https://www.w3schools.com/mysql]
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(formula)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️Daily news[BBC]
+- 🌩️https://www.udemy.com/course
+
+
+**JUNE 16**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- 📌Skillrack(3 pgms)
+>> Aptitude
+- ✍️Prepinsta(logical resoning(2 sums))
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️Daily news[BBC]
+
+
+**JUNE 17**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- ✨Mysql [Solved 2 problems / https://www.w3schools.com/mysql]
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(quant(2 sums))
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️https://www.udemy.com/course
+
+
 
