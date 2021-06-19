@@ -214,4 +214,35 @@
 - 🌩️https://www.udemy.com/course
 
 
+**JUNE 18**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- ✨Mysql 
+- 📌Skillrack(20 pgms)
+>> Aptitude
+- ✍️Prepinsta(quant(2 sums))
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️https://www.udemy.com/course
+
+
+**JUNE 19**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(quant)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️https://www.udemy.com/course
+
+
 
