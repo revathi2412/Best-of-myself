@@ -247,4 +247,15 @@
 >> Video
 - 🌩️https://www.udemy.com/course
 
+**June 20 - 24**
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(quant)
+>> Physical activity
+- 🚶‍♀️walking
 
