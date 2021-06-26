@@ -256,4 +256,28 @@
 >> Physical activity
 - 🚶‍♀️walking
 
+**JUNE 25**
+
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Typing
+- ✅Lumosity daily challenge
+>> Coding
+- 📌Skillrack(10 pgms)
+- 📌Hackerrank(2 pgms)
+>>Video
+- BBC daily news
+>> Physical activity
+- 🚶‍♀️walking
+
+**JUNE 26**
+
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Typing
+- ✅Lumosity daily challenge
+>> Coding
+- 📌Skillrack(10 pgms)
+>> Physical activity
+- 🚶‍♀️walking
 
