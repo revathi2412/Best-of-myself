@@ -281,3 +281,26 @@
 >> Physical activity
 - 🚶‍♀️walking
 
+**JUNE 27**
+
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Typing
+- ✅Lumosity daily challenge
+
+
+**JUNE 28**
+
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(FORMULAS)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️https://www.udemy.com/course
+
