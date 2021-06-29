@@ -308,3 +308,18 @@
 - 🚶‍♀️walking
 >> Video
 - 🌩️https://www.udemy.com/course
+
+
+
+**JUNE 29**
+
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- 📌Skillrack(10 pgms)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️https://www.udemy.com/course
