@@ -323,3 +323,36 @@
 - 🚶‍♀️walking
 >> Video
 - 🌩️https://www.udemy.com/course
+
+**JUNE 30**
+
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Typing
+- ✅Lumosity daily challenge
+>> Coding
+- 📌Skillrack(10 pgms)
+>> Physical activity
+- 🚶‍♀️walking
+
+**JULY 1**
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Typing
+- ✅Lumosity daily challenge
+>> Physical activity
+- 🚶‍♀️walking
+
+**JULY 2**
+
+- ✅Typing
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Lumosity daily challenge
+>> Coding
+- 📌Hackerrank(1 prblm)
+- 📌Skillrack(5 pgms)
+>> Aptitude
+- ✍️FACEprep
+>> Physical activity
+- 🚶‍♀️walking
