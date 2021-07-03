@@ -349,3 +349,11 @@
 - ✍️FACEprep
 >> Physical activity
 - 🚶‍♀️walking
+
+**JULY 3**
+- ✅Typing
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Lumosity daily challenge
+>> Aptitude
+- ✍️FACEprep
