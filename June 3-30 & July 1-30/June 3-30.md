@@ -357,3 +357,24 @@
 - ✅Lumosity daily challenge
 >> Aptitude
 - ✍️FACEprep
+
+**JULY 4 & 5**
+- ✅Typing
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Lumosity daily challenge
+
+**JULY 6**
+
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- 📌Skillrack(10 pgms)
+>> Aptitude
+- ✍️Prepinsta(formula)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️Daily news[BBC]
