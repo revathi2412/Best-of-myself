@@ -378,3 +378,37 @@
 - 🚶‍♀️walking
 >> Video
 - 🌩️Daily news[BBC]
+
+**JULY 7& 8**
+
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- 📌Skillrack(2 pgms)
+>> Physical activity
+- 🚶‍♀️walking
+>> Video
+- 🌩️Daily news[BBC]
+
+
+**JULY 9**
+
+- ✅Typing
+- ✅Lumosity daily challenge
+- ✅Brilliant.org
+- ✅Puzzles
+>> Coding
+- 📌Skillrack(3 pgms)
+>> Aptitude
+- ✍️Prepinsta(formula)
+>> Physical activity
+- 🚶‍♀️walking
+
+
+**JULY 10 & 11**
+- ✅Typing
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Lumosity daily challenge
