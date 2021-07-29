@@ -412,3 +412,15 @@
 - ✅Brilliant.org
 - ✅Puzzles
 - ✅Lumosity daily challenge
+
+**July 29**
+- ✅Typing
+- ✅Brilliant.org
+- ✅Puzzles
+- ✅Lumosity daily challenge
+>> Coding
+- 📌Skillrack(5 pgms)
+>> Aptitude
+- ✍️FACEprep
+>> Physical activity
+- 🚶‍♀️walking
