@@ -436,3 +436,11 @@
 - ✍️FACEprep
 >> Physical activity
 - 🚶‍♀️walking
+
+**August 26**
+
+- ✅Typing
+- ✅Brilliant.org
+- ✅Lumosity daily challenge
+>>Physical activity
+- 🚶‍♀️walking
